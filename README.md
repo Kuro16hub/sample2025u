@@ -1,1 +1,1 @@
-# sample2025sannmoku
+# sample2025
